@@ -1,0 +1,1 @@
+# GuiaCelulares-S22Ultra
